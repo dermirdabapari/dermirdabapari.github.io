@@ -1,1 +1,0 @@
-# dermirdabapari.github.io
